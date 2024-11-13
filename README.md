@@ -1,4 +1,4 @@
-# GB WhatsApp Download GB WhatsApp Download APK for free (Updated) Version 2024
+# GB WhatsApp Download APK for free (Updated) Version 2024
 
 
 **GB WhatsApp** is an enhanced version of WhatsApp, offering additional features and customization options not available in the official WhatsApp app. This repository provides an overview of GB WhatsApp, steps to download, and guidelines for its safe use.
